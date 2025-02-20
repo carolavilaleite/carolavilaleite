@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning javascript and C# in university of tecnology in Puc Minas, Belo Horizonte - Brazil
 - 💞️ I’m looking to collaborate on work
 - 📫 How to reach me: instagram: carolavilaleite
-- 😄 Pronouns: she/her
+- 😄 What makes me happy is to sing and learn more about music
 - ⚡ Fun fact: I lived in Japan for 7 months
 
 <!---
